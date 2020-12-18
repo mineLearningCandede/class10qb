@@ -11,6 +11,9 @@
 ## [science](https://drive.google.com/file/d/1YSI3hose0SOk76STMjfEPPyJJmNag5bz/view?usp=sharing)
 ## [Social](https://drive.google.com/file/d/1Xdcxsv3mPh9ximyCNyv-C5SrRLH9NwAs/view?usp=sharing)
 
+##Social 
+## [Fedralism ap](https://drive.google.com/file/d/1WqSX4BJB-z21_EenLL0CJX3Wr_MA_Q40/view?usp=sharing)
+
 ## QuestionBank Educart
 ## [--]()
 ## [Maths](https://drive.google.com/file/d/1Xzpqj8RxbucA8OvuMDY8RtRMu0_LBvcT/view?usp=sharing)
